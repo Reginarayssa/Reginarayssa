@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Reginarayssa
+- I'm finishing the university of systems analysis and development
